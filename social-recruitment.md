@@ -27,6 +27,7 @@ https://mp.weixin.qq.com/s/3r5GmHMxcuKFXHnoeKMdvQ
 - Senior Software Engineer – JavaScript https://smrtr.io/4N976 
 - Support Engineer   https://smrtr.io/4N976
 - Cloud Product Specialist   https://smrtr.io/4N4Dk
+- 内推渠道可能存在更新不及时的问题。如果你在上面内推渠道内找不到JD图片内的岗位，请将你的简历发至shizhang@microstrategy.com，我会内推你并更新渠道。
 
 
 ### 4 Q&A
