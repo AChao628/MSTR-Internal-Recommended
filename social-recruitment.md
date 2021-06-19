@@ -4,7 +4,7 @@
 - 温馨提示：简历通过筛选会有`在线测评`发到你的邮箱，这也是考核内容，请认真完成。在完成在线测评时，请开全局代理。
 ![image](https://s4.aconvert.com/convert/p3r68-cdx67/t430w-eikpm.png)
 
-### 2 关于微策略和岗位要求【内推链接请移步3】
+### 2 更多关于微策略和岗位要求【内推链接请移步3】
 https://mp.weixin.qq.com/s/3r5GmHMxcuKFXHnoeKMdvQ
 
 以下开始列举微策略的一些福利，包括但不限于
